@@ -35,9 +35,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A quip for an vpstart courtier: or, A quaint dispute betvveen veluet breeches and clothbreeches Wher
+〈…〉that all Northamtonſhire reports howe you are a father of the poore, a ſupporter of auntient Hoſp
+1. To the Gentlemen Readers health.
+
 #####Body#####
-A quip for an vpstart courtier: or, A quaint dispute betvveen veluet breeches and clothbreeches Wher
+
+1. A quip for an vpſtart Courtier.
+
 **Types of content**
 
   * There are 2 **verse** lines!
